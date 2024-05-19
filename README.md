@@ -7,7 +7,7 @@
 ## Поддержите мою работу
 * Подпишитесь на меня
 * Спонсируйте или финансируйте в мои проекты
-* Купить мне кофе:
+* Пожертвования на кофе:
 <a href="https://yoomoney.ru/to/4100117702839788" target="_blank"><img src="https://yoomoney.ru/i/shop/iomoney_logo_white_example.png" alt="Купите мне кофе =)" height="46" width="210"></a>
 
 ## Тут что-то за статистику ;D
